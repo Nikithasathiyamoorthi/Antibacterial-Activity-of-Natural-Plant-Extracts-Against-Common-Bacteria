@@ -1,0 +1,1 @@
+# Antibacterial-Activity-of-Natural-Plant-Extracts-Against-Common-Bacteria
